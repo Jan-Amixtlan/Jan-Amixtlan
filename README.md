@@ -42,8 +42,8 @@ Soy un desarrollador web apasionado por la tecnología, la innovación y el apre
 ## 📫 Contacto
 
 ¿Te gustaría colaborar o tienes alguna propuesta?  
-Encuéntrame en [LinkedIn](https://www.linkedin.com/in/tu-linkedin/)  
-o escríbeme a **tu-email@ejemplo.com**
+Encuéntrame en [LinkedIn](www.linkedin.com/in/janeth-ahuacatitla-amixtlan-b84331267)  
+o escríbeme a **janethamixtlan127@gmail.com**
 
 ---
 
